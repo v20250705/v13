@@ -14,6 +14,6 @@
 操作简便，点击即播，无需注册。平台采用HTTPS加密，保障你的隐私安全。我们定期更新视频库，每次访问都有新鲜内容。
 立即访问，畅享日本AV免费高清影片！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/v20250705/v13 ）</span>
 
 
